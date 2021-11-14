@@ -1,4 +1,4 @@
-![Developer | Marketer](https://pbs.twimg.com/profile_banners/1459037648039776256/1636882606/600x200)
+![Developer | Marketer](https://pbs.twimg.com/profile_banners/1459037648039776256/1636882606/1200x200)
 
 ### Hello! 👋,  I'm Freelancer Emon
 #### Developer | Marketer
